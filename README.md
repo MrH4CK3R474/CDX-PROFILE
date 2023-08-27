@@ -5,7 +5,7 @@
     ⏤‌ ≛⃝ᶦϻ‌ ᵛ‌ᵎᵖ ≛⃝🇰𝗨𝐒𝐇𝐖𝚲𝐇𝚲 ⋆‌⃝💔─‌⃛⋆ </h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
- -->    <img align="middle" src="https://profile-counter.glitch.me/PRADHAN474/coun t.svg" />
+ -->    <img align="middle" src="https://profile-counter.glitch.me/UNIQUE_KING_475/coun t.svg" />
 </p>
 
 [<img src="https://graph.org/file/8818c5e9470d2c6920a97.jpg"/>](https://github.com/MrHacker5575)
