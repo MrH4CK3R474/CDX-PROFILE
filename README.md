@@ -2,7 +2,7 @@
 
 
 
-    ⏤͟͞ ≛⃝ᶦϻͣ ᵛ͢ᵎᵖ ≛⃝🇨Ⓞ𝗗𝜩🇽 ⋆‌⃝💨─⃛͢⋆ </h1>
+  🎭 🇨Ⓞ𝗗𝜩🇽 💨 </h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
  -->    <img align="middle" src="https://profile-counter.glitch.me/Op_CODEX/coun t.svg" />
