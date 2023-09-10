@@ -23,17 +23,10 @@
 
 
 
-
-
-
 ## Connect with Me
 
 [![Github](https://img.shields.io/badge/-Github-181717?style=for-the-badge&logo=Github&logoColor=white)](https://github.com/MrHacker5575)
 [![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://telegram.me/Heart_Connection)
 
-## My Stats
-
-![GitHub stats](https://github-readme-stats.vercel.app/api?username=UNIQUE_KING_475&show_icons=true&theme=radical)
-![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=Op_CODEX&layout=compact&theme=midnight-purple&hide=Css)
 
 ![Visitors](https://visitor-badge.laobi.icu/badge?page_id=Op_CODEX)￼Enter
